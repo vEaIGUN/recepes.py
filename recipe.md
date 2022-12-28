@@ -20,4 +20,4 @@
 
 * Стакан-200 мл
 
-![Яблочный пирог](https://pojrem.ru/img2/k-3408-00.jpg)
+![Яблочный пирог](https://www.gastronom.ru/binfiles/images/20150913/b2cb03a4.jpg)
